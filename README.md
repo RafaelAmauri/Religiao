@@ -1,4 +1,4 @@
-## Religiao
+## Religião
 
 Meus arquivos para a matéria de Religião da PUC Minas com a professora Cida.
 
